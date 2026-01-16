@@ -1,2 +1,2 @@
 # READ.ME
-owo im a maxwell jagerman kinnie 
+owo im a maxwell jagerman kinnie uwu
