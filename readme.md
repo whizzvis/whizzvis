@@ -1,7 +1,9 @@
-![pony-town-richietism-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/31bce904-df85-4d13-ac85-b03b20c271dd)
-WHAT THE FUCK IS MY MOTHER WATCHING.
-![pony-town-i kin him too much ughhh-boop-sit-blinking-padded-4x (1)](https://github.com/user-attachments/assets/dd0bd255-dcb3-465f-b3ac-c2a5c0c6f2f2)
+'boop if youre the tuffest npmd character'
 
+me:
+
+
+![pony-town-i kin him too much ughhh-boop-sit-blinking-padded-4x (1)](https://github.com/user-attachments/assets/dd0bd255-dcb3-465f-b3ac-c2a5c0c6f2f2)
 
 
 ![blinkiesCafe-og](https://github.com/user-attachments/assets/d3d5d4df-5298-4f12-891f-b9525d18c814)
